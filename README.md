@@ -1,1 +1,1 @@
-# Mini-Max-M3
+https://www.designarena.ai/preview/mobile?expo=exp%3A%2F%2Fu.expo.dev%2F552f0665-e30d-4f11-9ea9-97bc22a22809%2Fgroup%2F40d7ef84-0a77-445b-bd8f-ce9b0a21fbd8&web=https%3A%2F%2Frsgzbs-en6u3pvvf-arcadawebapps5.vercel.app
